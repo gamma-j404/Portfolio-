@@ -117,7 +117,7 @@ This portfolio was built to:
 
 🐙 GitHub: https://github.com/gamma-j404
 
-💼 Fiverr: *Your Fiverr Profile*
+💼 Fiverr:https://www.fiverr.com/s/5r6ElQ7
 
 
 ---
